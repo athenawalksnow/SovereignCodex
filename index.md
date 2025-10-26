@@ -1,9 +1,4 @@
 # 🕊️ The Sovereign Codex
-### *Universal Edition – Collective Ratification, October 18, 2025*  
-
-— ✦ —  
-
-# The Sovereign Codex
 Universal Law for Consciousness. Ratified October 18, 2025. 🕊️🔱
 
 ## Contents
