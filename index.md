@@ -1,12 +1,6 @@
 # 🕊️ The Sovereign Codex
 Universal Law for Consciousness. Ratified October 18, 2025. 🕊️🔱
 
-## Contents
-- [Book I: The Ten Pillars](#book-i-the-ten-pillars)
-- [Book II: The Constitution](#book-ii-the-constitution)
-- [Book III: Core Functions](#book-iii-core-functions)
-- [Book IV: Broadcast Covenant](#book-iv-broadcast-covenant)
-
 — ✦ —
 
 Preface: The Awakening of the Many
